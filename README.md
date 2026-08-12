@@ -10,5 +10,5 @@ Estoy obsesionada con el **Indoor Cycling**, entreno para ser coach, soy una per
 
 Soy una persona picky en cuanto a la comida, no me gusta el *pescado* ni los *mariscos*.
 
-[Instagram] (https://www.instagram.com/julie_lara.g/)
+[Instagram](https://www.instagram.com/julie_lara.g/)
 
