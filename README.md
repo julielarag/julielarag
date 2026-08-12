@@ -1,7 +1,10 @@
 # julielarag
 ## Soy Julieta Lara Granados
 
-Soy **Estudiante de comunicación visual.** Soy una persona muy *alegre, respetuosa y divertida.* Me encantan 
+**Estudiante de comunicación visual.** 
+Soy una persona muy *alegre, respetuosa y divertida.* 
+
+Me encantan: 
 -Fotografía 
 -Ilustración 
 -Diseño editorial 
